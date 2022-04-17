@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Emmelineee
+- 👀 I’m interested in medical work
+- 🌱 I’m currently learning high school subjects
+- 💞️ I’m looking to collaborate on
+- 📫 How to reach me instagram: emmeline._.van.Asch
